@@ -48,7 +48,7 @@ ValeDreamer's Server Rebranded: 5 Times
 - Carpe Diem - Bridge - Rebound
 - Lulu Market
 
-ValeDreamer's New Server that Rebranded:
+ValeDreamer's New Server that were rebranded:
 - Rebound
 - Carpe Diem (Rebranded from Rebound)
 - Carpe Diem - Bridge - Rebound (Rebranded to Lulu Market)
